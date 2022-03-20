@@ -1,0 +1,1 @@
+# ISD-adam-labib-mirza-Jurnal04
